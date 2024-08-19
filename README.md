@@ -12,4 +12,4 @@ meu nome é Maria eduarda ribeiro
 
 @mariaeduardaribeiro
 
-![](https://tenor.com/pt-BR/view/cute-kiss-gif-25036662)
+![](https://media1.tenor.com/m/M1li4cr2TOoAAAAC/stressed-out.gif)
