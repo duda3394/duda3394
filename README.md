@@ -1,0 +1,15 @@
+### Boas vindas ao meu perfil
+
+meu nome é Maria eduarda ribeiro 
+
+-Estou estudando na Alura
+-Estou me desenvolvendo na linguagem JavaScript
+-Utilizo esse espaço para minha organizaçaõ e compartilhamento dos meus projetos desenvolvidos 
+
+### Você entrar em contato comigo 
+
+00001234102171sp@al.educacao.sp.gov.br
+
+@mariaeduardaribeiro
+
+![](https://tenor.com/pt-BR/view/cute-kiss-gif-25036662)
